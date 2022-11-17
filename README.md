@@ -1,1 +1,0 @@
-# tu nu te ahui
